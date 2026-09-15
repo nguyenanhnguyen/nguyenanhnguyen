@@ -11,4 +11,4 @@
 
 📧 [Email](mailto:nguyenanhnguyen10a4@gmail.com)
 💼 [LinkedIn](https://www.linkedin.com/in/nguyenna11/)
-🧩 [LeetCode](#https://leetcode.com/u/testnguyen57/)
+🧩 [LeetCode](https://leetcode.com/u/testnguyen57/)
