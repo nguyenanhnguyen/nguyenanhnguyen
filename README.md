@@ -5,7 +5,7 @@
 🤝 Leading teams, communicating ideas, and challenging assumptions
 🔬 Interested in both research and product development
 
-📄 [View my Resume](https://drive.google.com/drive/folders/1OpBjWfG-SSKo9LIp-kciuUpdzTTp2Hnw)
+📄 [View my Resume](https://drive.google.com/file/d/1ith5vkZHwEf337igmbBEHmA2KdqI2Qsn/view?usp=sharing)
 
 ## 🔗 Connect with me
 
